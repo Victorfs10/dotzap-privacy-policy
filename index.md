@@ -97,4 +97,4 @@ Esta política pode ser atualizada periodicamente. A versão mais recente estar�
 
 Em caso de dúvidas sobre esta Política de Privacidade, entre em contato:
 
-📧 [seu e-mail de contato]
+📧 victorfs10@hotmail.com
